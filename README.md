@@ -1,1 +1,1 @@
-# Halo ges this is a private project for myy website : verpage.site
+# Halo ges this is a private project for my website : verpage.site
